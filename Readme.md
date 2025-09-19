@@ -1,0 +1,1 @@
+Download Link for ChipCode Synthetic Dataset: https://www.wenshushu.cn/f/i0kbk8exwgj%20%E5%A4%8D%E5%88%B6%E9%93%BE%E6%8E%A5%E5%88%B0%E6%B5%8F%E8%A7%88%E5%99%A8%E6%89%93%E5%BC%80
